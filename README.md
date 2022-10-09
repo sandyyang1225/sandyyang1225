@@ -1,5 +1,4 @@
-
-![Olivia Wilson (10)](https://user-images.githubusercontent.com/112079598/194739818-d0f78e77-1749-4b9f-8442-4644ba25c97d.png)
+![Olivia Wilson (10)](https://user-images.githubusercontent.com/112079598/194739984-2256075e-beb3-4e2f-a628-4d1a671de80f.png)
 
 ### Hi there 👋
 
