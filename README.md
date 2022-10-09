@@ -1,3 +1,6 @@
+
+![Olivia Wilson (9)](https://user-images.githubusercontent.com/112079598/194739818-d0f78e77-1749-4b9f-8442-4644ba25c97d.png)
+
 ### Hi there 👋
 
 <!--
